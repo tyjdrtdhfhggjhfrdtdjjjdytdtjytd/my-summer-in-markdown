@@ -4,7 +4,7 @@
 
 I went bowling over multiple intervals of time with two of my best friends. I definitely beat both of them.
 
-<img src:"
+<img src="IMG_5803.jpeg" width="500">
 
 ## THRIFTING
 
